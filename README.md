@@ -52,3 +52,9 @@ This mix is safe to mix ahead of time as it will set and stay viable for 6 month
 If you are mixing in a 2.5 gallon container, or a larger one, adjust the rations accordingly as it is a 2:2:1 ratio.
 
 TIP - Fill the bucket with a hose at a fairly high pressure - dump in 12grams of the Masterblend 4-18-38, when about 1/3rd full dump in the 12grams of the Calcium Nitrate 15-0-0, when 2/3rds dump in6grams of Epson Salt. The water splashing around does all the mixing for you!
+
+TIP #2 - If you dont have a way to weight out grams, you can instead remember that 1 teaspoon is nearly 6 grams (using baking rules). So the ratio with teaspoons for 5 gallons of water would be - 
+
+2tsp of the Masterblend 4-18-38
+1tsp of Epson Salt (Magnesium Sulfate)
+2tsp of the Calcium Nitrate 15-0-0
