@@ -331,11 +331,11 @@ Wood Prairie Family Farm - https://www.woodprairie.com
 
 3) Baker Creek sells sacred Indigenous seeds … without permission from tribes. One example of this is Pawnee Eagle Corn, which their growers crossed with other Indigenous varieties and renamed it “Montana Cudu Corn.” It would be like someone finding your car in a parking lot, changing the name on the title, and then bragging about what an amazing car they have. It’s wrong. It’s gross. It’s unethical.
 
-4) Baker Creek has sent out their lawyers to silence the voices of Native seedkeepers. If you need “proof” of this, you’re not paying attention, and asking an Indigenous person to subject themselves to threats and trauma at the hands of a corporation (they are not a small business), is super shitty.
+4) Baker Creek has sent out their lawyers to silence the voices of Native seedkeepers. Asking an Indigenous person to subject themselves to threats and trauma at the hands of a corporation (they are not a small business), is super shitty.
 
-5) Baker Creek did, in fact, post white supremacist dog whistles on their page. They have tried to explain this away as being “sarcasm,” but their use of the word clan spelled with a “K” and their use of a modified Trump slogan, says everything. I am attaching a screenshot of their response below.
+5) Baker Creek did, in fact, post white supremacist dog whistles on their page. They have tried to explain this away as being “sarcasm,” but their use of the word clan spelled with a “K” and their use of a modified Trump slogan, says everything.
 
-6) Baker Crk seeds are not organic. They use terms like “non-gmo” and “heirloom” in an effort to greenwash their seeds. They’re not organic.
+6) Baker Creek seeds are not organic. They use terms like “non-gmo” and “heirloom” in an effort to greenwash their seeds. They’re not organic.
 
 7) Baker Creek tried to sell a GMO tomato made by a European company called NHP, a purple tomato in skin AND flesh, as a non-GMO.  NHP prompted them to test that the seeds were actually non-GMO. After this point, sales of the seed halted, but the reasoning for it was not acknowledged by Baker Creek. It was, instead, only addressed by NHP, who clarified that it had spoken with Baker Creek and they'd verified that the tomato was GM and had been mislabeled.
 
