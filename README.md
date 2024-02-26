@@ -60,8 +60,10 @@ TIP #2 - If you dont have a way to weight out grams, you can instead remember th
 2tsp of the Calcium Nitrate 15-0-0
 
 
+![IMG_20240213_111807637_HDR](https://github.com/daleamann/gardening/assets/10760266/647a7487-cd91-4296-9630-6d7e2659987c)
 
 
+![Uploading IMG_20240213_111901118_HDR.jpg…]()
 
 
 
