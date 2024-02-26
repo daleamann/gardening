@@ -62,13 +62,44 @@ TIP #2 - If you dont have a way to weight out grams, you can instead remember th
 
 ![IMG_20240213_111807637_HDR](https://github.com/daleamann/gardening/assets/10760266/647a7487-cd91-4296-9630-6d7e2659987c)
 
+![IMG_20240213_111901118_HDR](https://github.com/daleamann/gardening/assets/10760266/011accce-499e-4005-8929-de9d8b8170aa)
 
-![Uploading IMG_20240213_111901118_HDR.jpg…]()
+![IMG_20240213_111932818_HDR](https://github.com/daleamann/gardening/assets/10760266/2367a23b-0c3e-4dc8-b186-73e470d74bba)
+
+![IMG_20240213_111957911_HDR](https://github.com/daleamann/gardening/assets/10760266/9dfd4549-d0ef-4cea-a6b3-eaab9fce28e8)
+
+![IMG_20240213_112054843_HDR](https://github.com/daleamann/gardening/assets/10760266/a9948852-39e6-46e1-8de3-3c2c6042335d)
+
+### Preparing the Collars
+
+![IMG_20240213_112203302](https://github.com/daleamann/gardening/assets/10760266/762d1de5-d9de-445c-b566-82843e3c12e5)
+
+![IMG_20240213_112215640](https://github.com/daleamann/gardening/assets/10760266/2f2f9035-8698-47a7-a5a9-91af02b3751a)
+
+![IMG_20240213_112232107](https://github.com/daleamann/gardening/assets/10760266/2f1e8b7f-08ce-4487-8b66-1500e22c4592)
+
+![IMG_20240213_112239755](https://github.com/daleamann/gardening/assets/10760266/b8541ac0-fac0-4101-a54d-b50d29f30a5d)
+
+![IMG_20240213_112306610](https://github.com/daleamann/gardening/assets/10760266/800237d3-be33-45ca-91d3-e38cc04aaae5)
+
+![IMG_20240213_112319024](https://github.com/daleamann/gardening/assets/10760266/cd5116ea-ec4d-4038-892e-be1c09d11b7c)
+
+![IMG_20240213_112331113](https://github.com/daleamann/gardening/assets/10760266/d6cf4d56-a5aa-42af-b4ed-eafe78617596)
+
+![IMG_20240213_112403450_HDR](https://github.com/daleamann/gardening/assets/10760266/64109a4b-818a-44a3-85f3-5ebe223f6b0f)
+
+### 2023 Growth using the above
+
+![photo_2024-02-13_20-54-09](https://github.com/daleamann/gardening/assets/10760266/3850707d-50d0-45aa-8a62-8ee6d725d4ce)
+
+![photo_2024-02-13_20-54-15](https://github.com/daleamann/gardening/assets/10760266/658279b7-0755-4f34-8866-ca64ce43bb72)
+
+![photo_2024-02-13_20-54-32](https://github.com/daleamann/gardening/assets/10760266/c57d728d-f98f-4262-9bab-64a248d110b0)
+
+![photo_2024-02-13_20-54-36](https://github.com/daleamann/gardening/assets/10760266/f0109329-6f17-4cb0-a650-49db10cefe0d)
 
 
-
-
-## Appendix
+### Appendix
 
 Below is a list of seed companies that were recommended by various master gardeners and hobby gardeners last year.
 
