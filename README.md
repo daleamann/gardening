@@ -7,13 +7,13 @@ These are the tools and items that I have found to work well to make the system 
 
 Basically, you will need any available containers that can hold liquid, stand up to the weight of a plant, and is self-contained other than any holes that you put in it.
 
-If you want to support a good cause, then I recommend going to your local Firehouse Subs and purchasing any of their pickle buckets they have available (if there are any). Firehouse Subs sells empty pickle bucket for just $3 at participating locations — with proceeds going to the Firehouse Subs Public Safety Foundation. The 5-gallon food-safe container is made of sturdy plastic and comes with a lid.
+If you want to support a good cause, then I recommend going to your local Firehouse Subs and purchasing any of their pickle buckets they have available (if there are any). Firehouse Subs sell empty pickle bucket for just $3 at participating locations — with proceeds going to the Firehouse Subs Public Safety Foundation. The 5-gallon food-safe container is made of sturdy plastic and comes with a lid.
 
 
 
 ### Hydroponic Mineral Solution
 
-So far, the solution that works for me in a all-around general use is the [MASTERBLEND 4-18-38](https://www.amazon.com/MASTERBLEND-4-18-38-Complete-Combo-Fertilizer/dp/B072F2BL9D) kit that you can get from Amazon rather easily (link goes to amaon, no referral link or anything). 
+So far, the solution that works for me in a all-around general use is the [MASTERBLEND 4-18-38](https://www.amazon.com/MASTERBLEND-4-18-38-Complete-Combo-Fertilizer/dp/B072F2BL9D) kit that you can get from Amazon rather easily (link goes to amazon, no referral link or anything). 
 
 
 
